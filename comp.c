@@ -25,3 +25,16 @@ printf("1....the first");
  When I was a child, in the winter, there was a lot of snow, but unfortunately, the climate has changed. The temperature rises and drops very suddenly, 
  and now we cannot have a climate specific to the one season. I hope that in the future, we can fix that by saving the forest and not polluting the air.
  */
+ 
+ //3. MY JOB
+ My job 
+
+I've started my first job since I was in university, which began 6 years ago. There, the program was flexible,
+ because I had to finish my studies, so I just worked 2 days per week in a small company where, I used some tools for land measurement.
+ After 3 years, I chose to change my first job because I could not learn new things there, and the work become monotonous.
+ So, I choose the IT domain, where the work is more challenging. I was very happy to have my own office, and here, 
+ I don't need to go out when the weather is too cold or too hot. So, after 3 years I am still working in this domain, and every day,
+ I learn many new things. I think this is due the fact in my team I have some people with a lot of experience, and I just want to say 
+ I get on well with everybody. I start my work at 9 and finish at 6, but during this interval, I have an hour break. When I decide to, 
+ I can take work from home, but not more than four days per month. Even if I have a lot of work to do every day, I think the most important
+ is to do what you like. I hope to one day become my own boss and not need to go at work during a specific interval.
