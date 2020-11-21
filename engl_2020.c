@@ -774,7 +774,7 @@ VOCABULARY challenge
 5. Do you get nervous when your plane takes off ?
 6. She will graduate next Friday at 7 P.M. to be precise.
 /************************************************************************************************************************/
-16.ROOMMATES
+15.ROOMMATES
 
 I hear you've got a good living arrangement?
 Of course you know like any person, I was a little bit leery about living with roommates but at the same 
@@ -827,4 +827,292 @@ VOCABULARY challenge
 5. You will have various living arrangements in the next few years.
 6. Are you leery about trying new food?
 
+/************************************************************************************************************************/
+16.THE JOCK
+
+VOCABULARY
+
+jock
+You're quite the jock.
+A 'jock' is a person who is really involved in sports and fitness.
+He hangs out with all the jocks at school.
+She was a big jock when she was younger.
+
+offensive / defensive
+What position did you play? Were you mainly an offensive or defensive player?
+An 'offensive player' tries to score in the other team's goal while a 'defensive player' protects their team's goal.
+Our team just couldn't get past their defensive players.
+I'm an offensive player on the team.
+
+get a chance
+Living in Japan, I don't get many chances to watch the NBA.
+If you 'get a chance' to something you have the opportunity to try it.
+Have you ever gotten the chance to meet a celebrity?
+Did you get a chance to go to a live game last year?
+
+follow
+I don't watch it on TV, but I do follow it on the internet.
+If you 'follow' a team or a sport you check for updates and new information about the team and how they
+have performed in games.  "Follow" can also refer to things like news or topics of interest.
+Have you been following the election speeches?
+I don't really follow any team in particular.
+
+no problem
+[Thanks.] Sure, no problem.
+We say 'no problem' when something is not a big deal or request.
+It's no problem at all for me to help you.
+She said it was no problem if we were late.
+How often does he play now? 
+
+VOCABULARY challenge
+1. Do you follow celebrity gossip?
+2. He looks like a jock, but he doesn't play any sports.
+3. Are you sure it is no problem for you to drive there?
+4. When he was young he got a chance to throw the first pitch at a baseball game.
+5. Their defensive players were like a wall
+/************************************************************************************************************************/
+17.GOOD MOVIE
+
+My favorite movie is kind of a heavy movie. It's a called Sophie's Choice with Meryl Streep and Kevin Kline.
+It's a movie, it's set in World War II. Meryl Streep plays a Polish woman who has come to America and
+she's met a man, Kevin Kline. Who has a series of problems of his own, mostly psychological which she is not 
+100 percent aware of and she does a bunch of scenes where she thinks of the past and the very difficult decision she 
+had while during the war living in Poland. She had to decide between two children which one would be murdered by
+the Nazis and which one wouldn't. It's an ethical delimma that she faced at that time. She made and immediate decision
+on and it affected her the rest of her life.
+It's a fantastic movie. Not the story in itself, of course the story was brilliant but the acting, the fact that 
+she speaks Polish, she speaks German, she speaks English with a Polish accent which is amazing. A writer who is actually 
+a narrator to the movie as well, his character is great. Kevin Kline's basically a psycho character. He is a little bit 
+deranged in itself is pretty neat. All in all, the characters, the plot line, the movie it's fanatasic.
+
+VOCABULARY
+heavy movie
+My favorite movie is a heavy movie.
+A 'heavy movie' has an intense plot that makes you think or is very suspenseful.
+She only likes to watch heavy movies.
+The movie was good, but a little heavy for my mood.
+
+aware of
+She was not aware of his psychological problems.
+If you are 'aware of' something you see or recognize it.
+Were you aware of all the changes that happened when you were there?
+I wasn't even aware of the fact that you were there.
+
+ethical dilemma
+It's an ethical dilemma, having to decide which child would be murdered.
+An 'ethical dilemma' is a difficult decision that tests what is the right thing to do.
+It is a real ethical dilemma about what I should do.
+There are many ethical dilemmas in life.
+
+psycho character
+Kevin Kline is a psycho character in the movie.
+A 'psycho character' is crazy and unpredictable because of mental problems.
+He was kind of a psycho character when he was younger.
+She is a psycho character when she gets mad.
+
+all in all
+All in all, the movie is fantastic.
+We can use the phrase 'all in all' when we want to make a summary of everything that has been said in a writing or conversation.
+All in all it was a really good trip
+I am satisfied with my experience there all in all
+
+VOCABULARY challenge
+1. Telling the truth can sometimes be an ethical dilemma.
+2. All in all are you happy you went?
+3. I was very aware of the problems within the company.
+4. She became a psycho character when she heard the news.
+5. I like reading heavy books that make me think about life.
+
+/************************************************************************************************************************/
+18.THE LOVE STORY
+
+Look at them all lean in as I tell this story. It starts out sickeningly sweet. 
+I was in a musical, Cinderella. I was Cinderella and the guy who played the prince and I started to date.
+We got pretty serious. He was trying to get rid of an ex who kept bothering him and so he decided to come to Japan
+to teach English. All during the summer we had plans you know, I would come and visit and that kind of stuff.
+We were really excited about it and he was a model at the agency. At the same agency where I was an actor and... 
+so we had the same agent. He went to Japan and was teaching and we were writingback and forth,
+"looking forward to seeing you" all that kind of stuff.
+I was having lunch with my agent one day and telling her that I had started taking Japanese and I had been planning out
+my trip. I was very excited about this whole thing and she says,"JJ, I don't know how to tell you this."
+How did you feel?
+Like I needed a ladder to get on a piece of paper. Really, I mean it was a devastating.
+You know that first broken-love kind of thing, but..
+Did you hear from him afterwards?
+Yeah, we were always just friends apparently. Yeah, so not only adding the "insult to the indus..".
+What I meant to say "insult to injury" was him just saying that we were always just friends.
+
+VOCABULARY
+
+sickeningly sweet
+It all starts out sickeningly sweet.
+If a situation is 'sickeningly sweet' it is so sentimental or romantic that it is difficult to watch.
+They are sickeningly sweet together.
+Her love songs are so sickeningly sweet that I almost can't stand to listen to them.
+
+get serious
+We started to date and we got pretty serious
+If a relationship 'gets serious' it becomes more intense and looks like there is a future for long-term commitment.
+How long before you two got really serious?
+I think this relationship is going to get serious.
+
+get rid of
+He was trying to get rid of an ex who kept bothering him.
+If you 'get rid of' something you are finished with it and you want it out of your life.
+I am getting rid of a bunch of clothes.
+She is still good friends with her ex.
+
+writing back and forth
+We were writing back and forth, telling each other how excited we were.
+To 'write back and forth' is to communicate through letters, e-mail or another form of written speech.
+We wrote back and forth for a long time before we met.
+She communicates mostly through writing back and forth.
+
+add insult to injury
+He added insult to the injury by saying we were always just friends.
+To 'add insult to injury' is to make a situation worse by making an additional horrible comment or action. 
+To add insult to injury he started dating her best friend.
+To add insult to injury the stupid thing broke two weeks after I bought it.
+QUIZ
+How did she feel after she found out about the marraige?
+ a) Head over heels
+ b) Very low [correct]
+ c) Very high
+5) Did she talk to Richard ever again?
+ a) Yes[correct]
+ b) No
+ c) She does not remember
+ VOCABULARY challenge
+1. He sees his ex girlfriend at least once a month.
+2. We spent over a year writing back and forth.
+3. She thought it was sweet that he gave her flowers.
+4. To add insult to injury he just got a job working for the same company.
+5. You need to get rid of these vegetables.
+6. She wants to get serious with the relationship.
+/************************************************************************************************************************/
+19.THE TRAIN TRIP
+
+I started in Moscow travelled through Russia, Mongolia and ended up in China.
+That's a long way.
+Yes, it was. It took three weeks. I did it as part of a tour with 10 other people.
+Man, that's a cool trip. That must of cost a lot of money.
+It did cost a lot of money but not a lot of people can say they have done that. I looked in, 
+I researched the trip several months before I actually took it. A friend and I did it together and there was
+one other American and the rest of the people were from Switzerland.
+OK. Cool! What was the landscape like?
+A lot of it was flat and for miles around you could see absolutely nothing and as you got into Siberia 
+there was scattered trees. When we got into Mongolia you could see some Camels every once in awhile but besides 
+that there was a whole lot of nothing.
+Wow! Just wild camels.
+Wild Camels around the drinking hole. Yes, saw that more than once.
+So how did you eat on this train?
+We stopped several times along the way and upon every platform you could buy food that local people were selling. 
+A lot of it consisted of dried fish and other types of Russian delicacies and a lot of noodles that you heat it up 
+with hot water. Every train had hot water on it on every carriage so you were always able to make noodles 
+if you were desperate.
+So was this a luxurious train or was it a pretty basic...?
+It was pretty much the most basic you could get. There were no animals on board but sometimes they were
+coal-heated so it was very basic.
+Wow! Would you do it agian?
+Great question. Would I do it again? Yes, I would do it again but I would wait several years to do it. 
+One because it does cost a lot of money and two because there are many other things to do, to see.
+
+VOCABULARY
+end up
+I started in Moscow, traveled through Russia, Mongolia and ended up in China.
+If you 'end up' in a place it is your final destination.  It is where you stop traveling.
+How did you end up back at your house?
+We ended up eating at the McDonald's down the street.
+
+looked in
+I looked in, I researched the trip for several months before I actually took it.
+When you 'look into' something you find out information about it, ask questions and do research.
+When we looked into his background we discovered that he was a criminal.
+I need you to look into a solution for this problem.
+
+drinking hole
+Wild camels around a drinking hole.
+A 'drinking hole' is literally a hole in the ground that has water in it.
+There are very few drinking holes in the desert.
+Every day the women walk to the drinking hole to get water.
+
+coal-heated
+Sometimes they were coal-heated which is the most basic you can get.
+When the black rocks, 'coal', are burned to make heat, whatever they are heating is 'coal-heated.'
+The cabin was coal-heated so the air was very smoky.
+Very few houses are coal-heated anymore.
+
+see nothing
+For miles around you could see absolutely nothing.
+When you 'see nothing' it means that there is absolutely nothing to look at.
+It can be scary when you are in a boat and see nothing around you, only water.
+I was looking in the sky, but I could see nothing like he was describing.
+VOCABULARYc challenge
+1. Things that are coal-heated cause a lot of pollution.
+2. Driving through some states you can see nothing for hours.
+3. The horses stopped for water at the drinking hole .
+4. I looked into many different universities, but I liked this one the best.
+5. I knew we were lost when we ended up back where we started.
+/************************************************************************************************************************/
+20.GOING HOME
+
+Victor chats about his departure back home to the United States.
+Victor, tomorrow you're flying home?
+Yes, that's correct.
+OK. So, are you afraid of flying?
+No, flying's fine
+Todd: Really? Back home for your job, do you fly?
+Victor: No, I drive to work and to different assignments.
+Todd: OK. You never have to fly to go to conventions or other cities or stuff like that?
+Victor: Once or twice each year I do fly to go to conventions connected with my work.
+Todd: OK. Tomorrow you have a really long flight.
+Todd: It's probably what about 15 hours?
+Victor: From Narita to Washington DC is 12 hours in the air.
+Todd: Wow. So how do you pass the time on the plane?
+Victor: On the plane, I like to sleep as much as possible.
+Todd: OK. Do you take medication or just have a beer or..?
+Victor: No. I don't take any medication. I just.. I tend to stay up late the day before so that I'm so tired 
+I will want to sleep on the plane.
+Todd: Well, good strategy and I hope you have a good flight.
+
+VOCABULARY
+fly home
+Are you flying home tomorrow?
+To 'fly home' is to travel by airplane back to your country or city of origin or the place where you grew up.
+She is flying home to surprise her father on his birthday.
+It is really expensive to fly home from here.
+
+back home
+What do you do back home?
+We use the phrase 'back home' to talk about the place that we call home.
+When I go back home it's like I'm on vacation, because my mother does everything.
+How often do you go back home to see your family?
+
+as much as possible
+On the plane, I like to sleep as much as possible.
+If we do something 'as much as possible' we do it as long or as frequently as we can.
+She tries to help her mother as much as possible.
+Try to drink as much water as possible.
+
+pass the time
+How do you pass the time on the plane?
+'Pass the time' refers to how we spend our time or more specifically what we do to make the time go by more quickly.
+She passes her time at school chatting with her friends.
+I read to pass the time between flights.
+
+strategy
+That's a good strategy for taking long flights.
+A 'strategy' is a plan for doing something.  We usually create a strategy for dealing with a problem. 
+She always has the best strategies for dealing with problems.
+What study strategies do you have?
+
+VOCABULARY challenge
+1. I will be back home for only a few weeks.
+2. His strategy for success is to do things right away.
+3. They fly home for every long vacation.
+4. Make sure you study as much as possible.
+5. Music really helps pass the time.
+/************************************************************************************************************************/
+/************************************************************************************************************************/
+/************************************************************************************************************************/
 /************************************************************************************************************************/
